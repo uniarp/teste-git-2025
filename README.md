@@ -2,3 +2,4 @@
 
 - Daniel
 - Fernandinho Gameplays
+- Bruno
