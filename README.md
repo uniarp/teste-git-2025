@@ -2,3 +2,6 @@
 
 - Daniel
 - Joice
+- Bruno S
+- Fernandinho Gameplays
+- Bruno
